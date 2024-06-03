@@ -7,3 +7,5 @@ Lideró las campañas que dieron la independencia a varias naciones americanas, 
 Tuvo un conflicto político con su ayudante de campo Antonio José de Sucre, quien junto a Casimiro Olañeta tenían intenciones de crear un nuevo Estado en el margen de las provincias del Alto Perú. Cuando se fundó el nuevo Estado, al que Bolívar no reconocía, la asamblea deliberante para que lo reconociese, denominó al Estado naciente como República Bolívar y posteriormente República Boliviana o Bolivia, en honor al Libertador.
 
 En sus últimos años, Bolívar se desilusionó cada vez más con las repúblicas sudamericanas y se distanció de ellas por su ideología centralista. Fue destituido sucesivamente de sus cargos hasta que renunció a la presidencia de Colombia y murió de tuberculosis en 1830. Su legado es diverso y de gran alcance dentro y fuera de América Latina. Se le considera un héroe y un icono nacional y cultural en toda Latinoamérica; las naciones de Bolivia y Venezuela (como República Bolivariana de Venezuela) llevan su nombre, y se le ha conmemorado en todo el mundo en forma de arte público o nombres de calles y en la cultura popular.
+
+CesarBaca
