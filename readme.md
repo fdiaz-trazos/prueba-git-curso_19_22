@@ -14,3 +14,7 @@ Tuvo un conflicto político con su ayudante de campo Antonio José de Sucre, qui
 En sus últimos años, Bolívar se desilusionó cada vez más con las repúblicas sudamericanas y se distanció de ellas por su ideología centralista. Fue destituido sucesivamente de sus cargos hasta que renunció a la presidencia de Colombia y murió de tuberculosis en 1830. Su legado es diverso y de gran alcance dentro y fuera de América Latina. Se le considera un héroe y un icono nacional y cultural en toda Latinoamérica; las naciones de Bolivia y Venezuela (como República Bolivariana de Venezuela) llevan su nombre, y se le ha conmemorado en todo el mundo en forma de arte público o nombres de calles y en la cultura popular.
 
 ## CesarBaca
+
+¿Qué es la vida? 
+
+Desde una óptica filosófica el sentido de la vida está constituido por el sistema de objetivos (v) que justifican a plenitud la existencia de un individuo, analizada en su totalidad, ante sus propios ojos. Existencia de un individuo: El sentido de la vida es netamente individual. Nadie puede elegirlo por nosotros.
