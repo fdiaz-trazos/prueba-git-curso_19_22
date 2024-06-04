@@ -1,9 +1,8 @@
 # Readme file 99
 
-## Esto es una prueba para GIT.
-Otra prueba.
+El oeste de Texas divide la frontera entre Mexico y Nuevo México. Es muy bella pero aspera, llena de cactus, en esta region se encuentran las Davis Mountains. Todo el terreno esta lleno de piedra caliza, torcidos arboles de mezquite y espinosos nopales. Para admirar la verdadera belleza desertica, visite el Parque Nacional de Big Bend, cerca de Brownsville. Es el lugar favorito para los excurcionistas, acampadores y entusiastas de las rocas. Pequeños pueblos y ranchos se encuentran a lo largo de las planicies y cañones de esta region. El area solo tiene dos estaciones, tibia y realmente caliente. La mejor epoca para visitarla es de Diciembre a Marzo cuando los dias son tibios, las noches son frescas y florecen las plantas del desierto con la humedad en el aire.
 
-## Simón José Antonio de la Santísima Trinidad Bolívar Ponte y Palacios Blanco 
+## Simón José Antonio de la Santísima Trinidad Bolívar Ponte y Palacios Blanco
 
 Simón José Antonio de la Santísima Trinidad Bolívar Ponte y Palacios Blanco (Caracas, Imperio español; 24 de julio de 1783​-Santa Marta, Gran Colombia; 17 de diciembre de 1830), más conocido como Simón Bolívar o el Libertador, fue un militar y político venezolano.​ Líder fundamental de la independencia de lo que son hoy Venezuela, Colombia y Ecuador, ayudó a consolidar la de Perú, fue la inspiración en la última etapa independentista de Panamá y estuvo involucrado en la cuestión fundacional de Bolivia. Figura esencial de la emancipación hispanoamericana frente al Imperio español. Por sus actos durante la Campaña Admirable se le otorgó el título de Libertador de Venezuela y se le conocería luego simplemente como el Libertador.
 
